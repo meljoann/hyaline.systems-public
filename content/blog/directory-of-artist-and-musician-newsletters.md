@@ -26,7 +26,7 @@ The list is completely open source and you can help make it better (see below)!
 | [Mads Kjeldgaard](https://madskjeldgaard.dk/newsletter/)              | Sound artist and composer        |
 | [Kristoffer Lislegaard](https://www.kristofferlislegaard.com/follow/) | Musician                         |
 | [Jenny Berger Myhre](https://app.keila.io/forms/nfrm_dj3jQmRJ)        | Multidisciplinary artist         |
-
+| [Meljoann](https://meljoann.com/pages/socials/#-email)                | Music & video maker              |
 
 ## Adding to the list
 
